@@ -1,4 +1,4 @@
-# Sneha-kk-2006
+# Sneha KK
 <h1 align="left">Hey 👋i'm Sneha kk</h1>
 
 ###
